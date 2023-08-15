@@ -1,2 +1,1 @@
-Lorem ipsum
-erfasd
+Supreme Rotary Phone
